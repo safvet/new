@@ -1,1 +1,1 @@
-# new
+# uzaktaki repomu aldım
